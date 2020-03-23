@@ -14,4 +14,4 @@ no hp target
 
 enjoyyyyy
 
-NB:don't be ignorant
+NB :don't be ignorant ^_^
